@@ -2,7 +2,7 @@
 
 ## What is Mobile Teeth Whitening?
 
-Mobile teeth whitening is a convenient, at-home teeth whitening service where a professional technician comes directly to you, delivering high-quality, painless whitening results. SmileFresh offers **mobile teeth whitening** services across Australia, making it easier than ever for clients to get a bright, white smile in the comfort of their own home.
+[Mobile teeth whitening](https://smilefreshau.com.au/) is a convenient, at-home teeth whitening service where a professional technician comes directly to you, delivering high-quality, painless whitening results. SmileFresh offers **mobile teeth whitening** services across Australia, making it easier than ever for clients to get a bright, white smile in the comfort of their own home.
 
 Unlike traditional in-office treatments that require travel and time away from home or work, SmileFresh’s **mobile teeth whitening service** ensures **instant results** with the same professional-grade products used by dentists.
 
@@ -10,7 +10,7 @@ Unlike traditional in-office treatments that require travel and time away from h
 
 ## How Does Mobile Teeth Whitening Work?
 
-SmileFresh uses a **clinically proven whitening solution**, applied by trained technicians who come directly to your location. The process involves applying a specialized gel to your teeth, followed by using a whitening light to activate the solution, leaving your teeth up to **14 shades whiter** in as little as **60 minutes**.
+[SmileFresh](https://smilefreshau.com.au/) uses a **clinically proven whitening solution**, applied by trained technicians who come directly to your location. The process involves applying a specialized gel to your teeth, followed by using a whitening light to activate the solution, leaving your teeth up to **14 shades whiter** in as little as **60 minutes**.
 
 Our technicians bring everything required for the treatment, including all necessary tools, aftercare packs, and even a **free home whitening kit** with select treatments.
 
