@@ -6,90 +6,98 @@
 
 ---
 
-### Australia's #1-Rated Teeth Whitening Clinic – Now in Brisbane! 🇦🇺✨
+### Australia's Top-Rated Teeth Whitening Service – Now in Brisbane
 
-**SmileFresh** brings **Australia’s most trusted teeth whitening service** right to **Brisbane** with **in-studio** and **mobile treatments**.
+Looking for safe, effective, and instant **teeth whitening in Brisbane**?  
+**SmileFresh** is Australia's most-reviewed whitening service, now offering both **in-studio** and **mobile teeth whitening** across **Brisbane City**, **Brisbane CBD**, and surrounding suburbs.
 
----
-
-### ⭐ Why Choose SmileFresh Brisbane?
-
-- 🔝 **Over 1,000+ 5-Star Google Reviews**
-- 🏆 **15,000+ Clients Serviced Nationwide**
-- ✅ **Clinically Proven Dental-Grade Whitening Formula**
-- 😁 **Instant Results: Up to 14 Shades Whiter in 1 Visit**
-- 🏡 **We Come to You – No Extra Cost**
-- 💯 **Pain-Free, Sensitivity-Free Treatments**
-- 🪥 **Free Aftercare Pack + Home Whitening Kit (UltraFresh)**
+With **over 1,000 five-star reviews**, SmileFresh is trusted by 15,000+ Australians for delivering **whiter, brighter smiles**—up to **14 shades lighter** in just one visit.
 
 ---
 
-## 💎 Our Most Popular Treatments
+## 🌟 Why Choose SmileFresh Brisbane?
 
-### ✨ UltraFresh Treatment (Most Effective!)
-- 100-minute session
-- Instantly up to 14 shades whiter
-- FREE aftercare pack + home whitening kit
-- Ideal for maximum impact
+- ✅ Over **1,000+ 5-Star Google Reviews**
+- 🦷 Dental-grade formula (6% hydrogen peroxide)
+- 😁 Results of up to **14 shades whiter**
+- 📍 Convenient location in **Brisbane City**
+- 🏡 Mobile whitening available across **Brisbane CBD** and metro suburbs
+- 💯 100% Pain-Free & Sensitivity-Free
+- 🧼 Clean, modern studio with professional technicians
 
-### 🌟 Triple Treatment (Signature Service)
-- 60-minute session
-- Instantly up to 10 shades whiter
-- Includes aftercare pack
-- Balanced for comfort and results
+Whether you're working in the **Brisbane CBD** or living in **Newstead, South Bank, Fortitude Valley**, or **West End**, SmileFresh is your go-to for **professional teeth whitening in Brisbane**.
 
 ---
 
-## 🏙️ SmileFresh Brisbane Studio
+## 💎 Popular Whitening Treatments
 
-📌 **Brisbane City Studio**  
-10/110 Macquarie St, Teneriffe QLD 4005  
-Mobile service also available across Brisbane and surrounding suburbs.
+### UltraFresh Treatment – Our Most Powerful Option
+- 100-minute session  
+- 7–14 shades whiter  
+- FREE home whitening kit + aftercare pack  
+- Best for dramatic results
 
----
-
-## 💬 What Our Clients Say
-
-> “Top quality service and results, number 1 teeth whitening service in Brisbane!” – *Harry Comino*  
-> “WOW! My teeth are so white and exactly how I wanted them. Don’t bother going somewhere cheaper!” – *Moonie W.*  
-> “Friendly, pain-free, and perfect results. I’ll be back for sure.” – *Sarah O’Brien*  
-> “They came to my home and the results were amazing. So convenient!” – *Jasmine McNair*
-
-More reviews available on [Google](https://g.page/r/CZVsbvDWAm7nEBM/review).
+### Triple Treatment – Our Signature Whitening
+- 60-minute session  
+- 5–10 shades whiter  
+- Aftercare pack included  
+- Great for maintaining your glow
 
 ---
 
-## 📦 Our Services Are:
+## 📍 SmileFresh Studio – Brisbane
 
-- 🪞 Mobile & In-Studio
-- ✅ 100% Pain-Free
-- ⚡ Fast & Effective
-- 🧪 Safe 6% Hydrogen Peroxide Gel
-- 🧑‍🔬 Backed by Professional Technicians
+📌 **10/110 Macquarie St, Teneriffe QLD 4005**  
+Only minutes from the heart of **Brisbane CBD**, our studio is easily accessible for professionals and residents across **Brisbane City**.
 
----
-
-## 🔗 Book Your Appointment Today
-
-👉 [Book Now – Brisbane Teeth Whitening](https://smilefreshau.com.au/pages/brisbane-teeth-whitening-locations)  
-✅ Flexible times | ⏱️ Same-day bookings available | 💳 Secure checkout  
+Too busy to come in?  
+No problem — our **mobile whitening team services Brisbane CBD, Brisbane City**, and all major suburbs. Just book, relax, and we’ll come to you.
 
 ---
 
-## 📍 Other SmileFresh Locations
+## 💬 What Our Clients Are Saying
 
-- Sydney: Bondi Junction, Bass Hill, Earlwood, Padstow  
-- Melbourne: South Yarra, Docklands  
-- Gold Coast: Miami  
-- Perth: Marmion  
-- Adelaide: Prospect  
-- Mobile Services Available in All Major Cities
+> “Amazing results and such a clean, relaxing space. Best teeth whitening in Brisbane.” – *Kaila J.*  
+> “SmileFresh gave me the perfect result. The Brisbane CBD mobile service is so convenient!” – *Jasmine M.*  
+> “Painless and professional. Definitely coming back. Love the vibe in the Brisbane City studio!” – *Tracey B.*  
+
+See all reviews: [Google Reviews](https://g.page/r/CZVsbvDWAm7nEBM/review)
 
 ---
 
-### 🦷 SmileFresh – Trusted by Thousands, Loved by Smiles 😁
+## 🦷 Why SmileFresh?
 
-> _“Australia's most-reviewed professional teeth whitening company, with results you can trust.”_
+- Mobile & In-Studio Services
+- Instant, Visible Results
+- Safe for Enamel, No Harsh Chemicals
+- Friendly Technicians & Comfortable Environment
+- Available Across Brisbane, Sydney, Melbourne, Perth, Adelaide & Gold Coast
+
+---
+
+## 💻 Book Your Teeth Whitening Appointment
+
+Looking for **teeth whitening Brisbane CBD**, **Brisbane City**, or nearby?  
+Click below to secure your spot today!
+
+👉 [Book Now – SmileFresh Brisbane](https://smilefreshau.com.au/pages/brisbane-teeth-whitening-locations)
+
+---
+
+## 📦 SmileFresh Also Serves:
+
+- **Sydney**: Bondi Junction, Earlwood, Padstow  
+- **Melbourne**: Docklands, South Yarra  
+- **Gold Coast**: Miami  
+- **Perth**: Marmion  
+- **Adelaide**: Prospect  
+- **Mobile Services**: Available Australia-wide
+
+---
+
+### SmileFresh – Trusted by Thousands, Loved by Smiles
+
+> _“Whether you're in the heart of Brisbane CBD or relaxing at home in Brisbane's leafy suburbs, SmileFresh makes professional teeth whitening easy and effective.”_
 
 ---
 
